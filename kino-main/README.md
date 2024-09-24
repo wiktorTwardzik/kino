@@ -1,2 +1,0 @@
-# kino
-róham dzi madke
